@@ -6,7 +6,7 @@
 
 ![](https://64.media.tumblr.com/34c15ce6616ace29fcc5fad0666db31d/431fa7df187a4cc4-41/s250x400/3a4f8959353c26506494001e874915a46451df09.pnj) ![](https://64.media.tumblr.com/2c84a696a120f997299a32f940a198a3/431fa7df187a4cc4-6a/s250x400/1fcc833f99d52690207816f268087d0ce9222002.pnj)
 
-![](https://64.media.tumblr.com/111f3c7285bdb786752bc3225658785b/5fe150661b44e5ea-74/s540x810/1931b99e2bf22106c1917c151d0f8834a7f02be2.gifv)
+![](https://media1.tenor.com/m/2jKWT0zeFP8AAAAd/penacony-hsr.gif)
 
 ![](https://64.media.tumblr.com/82cd94a800fc05d8ad4ca958903a371b/431fa7df187a4cc4-50/s250x400/51a0e2d3a0c55594cebcd5eb781cfc65cc10c924.pnj) ![](https://64.media.tumblr.com/ad24a39ec565c5b12f9fc2b1c556c1fa/431fa7df187a4cc4-26/s250x400/ddf2a79dea93a3c120a0e348cf3ffd12040eeac4.pnj)
 
