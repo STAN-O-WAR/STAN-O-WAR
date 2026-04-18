@@ -2,7 +2,11 @@
 
 <img src="https://files.catbox.moe/fvjmet.png" width="400" />
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=sokm00zv4j0eyrltnlsww5jkp&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=bf9f69&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+<h5 align="center">
+  ${\textsf{\color{#6e4a1f}hello,}}$ ${\textsf{\color{#805d32}ac:}}$ ${\textsf{\color{#82653c}m4chine-her4ld}}$ ${\textsf{\color{#826741}on}}$ ${\textsf{\color{#7d6947}tiktok}}$
+<h5 align="center">
+  
+  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=sokm00zv4j0eyrltnlsww5jkp&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=bf9f69&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
 <h5 align="center">
